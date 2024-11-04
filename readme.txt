@@ -1,2 +1,2 @@
-naughty boi
+bye
 0
